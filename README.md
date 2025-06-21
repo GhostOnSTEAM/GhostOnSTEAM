@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GhostOnSTEAM
-- 👀 I’m interested in games (val,rblx, minecraft)
-- 🌱 I’m currently learning code
-- 💞️ I’m looking to collaborate on rblx game
+- 👀 I’m interested in games (val, roblox, Call Of Duty)
+- 🌱 I’m currently learning how to do cool stuff in Gorilla Tag
+- 💞️ I’m looking to collaborate on gorilla tag!
 - 📫 How to reach me email (c0pperna1lb@gmail.com)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im super cool or som
